@@ -32,11 +32,11 @@ Here are some ideas to get you started:
 
 
 
-                                                                Name = "prawash malviya"
-
-                                                                     Age = "18" 
-
-                                                                            Country = "🇮🇳"
+                                                              /  Name = "prawash malviya" /
+                                                             /                           /
+                                                            /           Age = "18"       \
+                                                            \
+                                                               \               Country = "🇮🇳"
 
                                                        Python & java & php💖
 
