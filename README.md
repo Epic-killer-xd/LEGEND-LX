@@ -5,39 +5,39 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ... PYTHON 
+-                         🔭 I’m currently working on ... PYTHON 
 
-- 🌱 I’m currently learning ... PYTHON & PHP & JAVA 
+-                                           🌱 I’m currently learning ... PYTHON & PHP & JAVA 
 
-- 👯 I’m looking to collaborate on ...
+-               👯 I’m looking to collaborate on ...
 
-- 🤔 I’m looking for help with ... LEGEND-OS
+-                     🤔 I’m looking for help with ... LEGEND-OS
 
-- 💬 Ask me about ...
+-               💬 Ask me about ...
 
-- 📫 How to reach me: ...
+-             📫 How to reach me: ...
 
-- 😄 Pronouns: ...
-
-- ⚡ Fun fact: ...
-
-
-
--->乛𖤍✞︎t§🔱𖤍𓆩ℓєgєи∂-ℓx™𓆪𖤍🔱⸙‌ٖٖٖ
-
-#Don't Break The Heart Of The Hacker,Bcoz U Don't Know Wt Will Happn Tn,
-I am larning Python/PHP Language.
+-                        😄 Pronouns: ...
+ 
+-                   ⚡ Fun fact: ...
+  
 
 
+                                              -->乛𖤍✞︎t§🔱𖤍𓆩ℓєgєи∂-ℓx™𓆪𖤍🔱⸙‌ٖٖٖ
+
+                       #Don't Break The Heart Of The Hacker,Bcoz U Don't Know Wt Will Happn Tn,
+                                                    I am larning Python/PHP Language.
 
 
-Name = "prawash malviya"
 
-Age = "18"
 
-Country = "🇮🇳"
+                                                                Name = "prawash malviya"
 
-Python & java & php💖
+                                                                     Age = "18" 
 
-Coding is life 💝🖤
+                                                                            Country = "🇮🇳"
+
+                                                       Python & java & php💖
+
+                                                                          Coding is life 💝🖤
 
