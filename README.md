@@ -43,3 +43,19 @@ Here are some ideas to get you started:
                                                                           Coding is life 💝🖤
 ![photo_2021-08-25_10-15-42](https://user-images.githubusercontent.com/87700009/132176137-77c0700f-e02a-4f0a-aea8-6dff700211d7.jpg)
 
+
+-                         🔭 I’m currently working on ... PYTHON 
+
+-                                           🌱 I’m currently learning ... PYTHON & PHP & JAVA 
+
+-               👯 I’m looking to collaborate on ...
+
+-                     🤔 I’m looking for help with ... LEGEND-OS
+
+-               💬 Ask me about ...
+
+-             📫 How to reach me: ...
+
+-                        😄 Pronouns: ...
+ 
+-                   ⚡ Fun fact: ...
