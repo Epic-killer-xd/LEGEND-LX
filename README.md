@@ -49,36 +49,48 @@ Here are some ideas to get you started:
                                                               ┗━━━━━♠PRAWASH-malviya♠️ ━━━━━━━━┛
                                                               
                                                                 ✨PYTHON✨  🔹 📜PHP📜 
+                                                                
+                                                                
+                                                                
+                                                                
+                                                                
+                                                                
+                                                                
+                                                                
+                                                                
+                                                                
+                                                                
                                                           
                                                          
                                                             
                                                               
-
+                                                          ━━━━━━━━━━━━━━━━━━━━  
                                                        Python & java & php💖
-
+                                                                            ━━━━━━━━━━━━━━━━━━━━
                                                                           Coding is life 💝🖤
 
 
-
-                                                                                    ━━━━━━━━━━━━━━━━━━━━
+                                                                       ![23828996 - Copy](https://user-images.githubusercontent.com/87700009/132297735-3c0712f8-967c-4c05-a93d-3fbf31879ebc.jpg)
+ PRAWASH
+                                                                   ━━━━━━━━━━━━━━━━━━━━
 
                                                                            
-                                                                                    『😈LEGEND-LX😈』
+                                                                  『😈LEGEND-LX😈』
 
-                                                              ┏━━━━━━━━━━━━━━━━━━━ ━━━━━━━━━━━━━━━━━━━━
+                                             ┏━━━━━━━━━━━━━━━━━━━ ━━━━━━━━━━━━━━━━━━━━
                                                                        
-                                                              ┣•➳➠ 🔭 I’m currently working on ...⚡PYTHON PHP JAVA Scripts⚡
+                                             ┣•➳➠ 🔭 I’m currently working on ...⚡PYTHON PHP JAVA Scripts⚡
                                                                        
-                                                              ┣•➳➠ 🌱 I’m currently learning ... ⚡Telegram and instagram bots⚡
+                                             ┣•➳➠ 🌱 I’m currently learning ... ⚡Telegram and instagram bots⚡
                                                                        
-                                                              ┣•➳➠ 👯 I’m looking to collaborate on ...⚡Sof..project..scripts..⚡
+                                             ┣•➳➠ 👯 I’m looking to collaborate on ...⚡Sof..project..scripts..⚡
                                                                        
-                                                              ┣•➳➠ 🤔 I’m looking for help with ...⚡repositories & projects⚡
+                                             ┣•➳➠ 🤔 I’m looking for help with ...⚡repositories & projects⚡
                                                                        
-                                                              ┣•➳➠ 📫 How to reach me: ...&&&&&&&&
+                                             ┣•➳➠ 📫 How to reach me: ...&&&&&&&&
                                                                        
-                                                              ┣•➳➠ 😄 Pronouns: ...$$$$$$$$$$
+                                             ┣•➳➠ 😄 Pronouns: ...$$$$$$$$$$
                                                                        
-                                                              ┣•➳➠ ⚡ Fun fact: ...##########
-                                                                       
-                                                              ┗━━━━━━━━━━━━━━━━━━━ ━━━━━━━━━━━━━━━━━━━━
+                                             ┣•➳➠ ⚡ Fun fact: ...##########
+                                                                     
+                                             ┗━━━━━━━━━━━━━━━━━━━ ━━━━━━━━━━━━━━━━━━━
