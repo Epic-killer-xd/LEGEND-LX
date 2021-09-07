@@ -70,7 +70,7 @@ Here are some ideas to get you started:
                                                                           Coding is life 💝🖤
 
 
-                                                                       ![23828996 - Copy](https://user-images.githubusercontent.com/87700009/132297735-3c0712f8-967c-4c05-a93d-3fbf31879ebc.jpg)
+                                                                       
  PRAWASH
                                                                    ━━━━━━━━━━━━━━━━━━━━
 
@@ -94,3 +94,7 @@ Here are some ideas to get you started:
                                              ┣•➳➠ ⚡ Fun fact: ...##########
                                                                      
                                              ┗━━━━━━━━━━━━━━━━━━━ ━━━━━━━━━━━━━━━━━━━
+ 
+ 
+ 
+ ![23828996 - Copy](https://user-images.githubusercontent.com/87700009/132297993-586a4f2d-741c-4eff-8f43-9d5ce8978127.jpg)
