@@ -29,9 +29,6 @@ Here are some ideas to get you started:
                        #Don't Break The Heart Of The Hacker,Bcoz U Don't Know Wt Will Happn Tn,
                                                     I am larning Python/PHP Language.
 
-
-
-
                                                               𝖑𝖊ɠêɳ̃d-𝖑x 𝙸𝚜 𝙾𝚗𝚕𝚒𝚗𝚎
 
                                                               ┏━━♠️✞t͛ẞ̸ 𝖑𝖊ɠêɳ̃dẞø✞♠️━━┓
@@ -49,21 +46,8 @@ Here are some ideas to get you started:
                                                               ┗━━━━━♠PRAWASH-malviya♠️ ━━━━━━━━┛
                                                               
                                                                 ✨PYTHON✨  🔹 📜PHP📜 
-                                                                
-                                                                
-                                                                
-                                                                
-                                                                
-                                                                
-                                                                
-                                                                
-                                                                
-                                                                
-                                                                
-                                                          
-                                                         
-                                                            
-                                                              
+                                                                                                                         
+                                                                                                                                                
                                                           ━━━━━━━━━━━━━━━━━━━━  
                                                        Python & java & php💖
                                                                             ━━━━━━━━━━━━━━━━━━━━
