@@ -34,14 +34,21 @@ Here are some ideas to get you started:
 
                                                               𝖑𝖊ɠêɳ̃d-𝖑x 𝙸𝚜 𝙾𝚗𝚕𝚒𝚗𝚎
 
-┏━━♠️✞t͛ẞ̸ 𝖑𝖊ɠêɳ̃dẞø✞♠️━━┓
-┣🌷        Name    : "✞tß Prawash_Malviya 🇮🇳"
-┣🌷        Age      : "18"
-┣🌷        Country✞ : "♥I N♥️"
-┣🌷         PYTHON   : "4YEARS"
-┣🌷         Coding    : "PHP & JAVA"
-┗━━━━━♠PRAWASH-malviya♠️ ━━━━━━━━┛
-    ✨PYTHON✨  🔹 📜PHP📜 
+                                                              ┏━━♠️✞t͛ẞ̸ 𝖑𝖊ɠêɳ̃dẞø✞♠️━━┓
+                                                              
+                                                              ┣🌷        Name    : "✞tß Prawash_Malviya 🇮🇳"
+                                                              
+                                                              ┣🌷        Age      : "18"
+                                                              
+                                                              ┣🌷        Country✞ : "♥I N♥️"
+                                                              
+                                                              ┣🌷         PYTHON   : "4YEARS"
+                                                              
+                                                              ┣🌷         Coding    : "PHP & JAVA"
+                                                              
+                                                              ┗━━━━━♠PRAWASH-malviya♠️ ━━━━━━━━┛
+                                                              
+                                                                ✨PYTHON✨  🔹 📜PHP📜 
                                                           
                                                          
                                                             
