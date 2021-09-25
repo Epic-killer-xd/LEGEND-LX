@@ -24,10 +24,11 @@ Here are some ideas to get you started:
   
 
 
-                                              -->乛𖤍✞︎t§🔱𖤍𓆩ℓєgєи∂-ℓx™𓆪𖤍🔱⸙‌ٖٖٖ
+         -->乛𖤍✞︎t§🔱𖤍𓆩ℓєgєи∂-ℓx™𓆪𖤍🔱⸙‌ٖٖٖ
 
-        #Don't Break The Heart Of The Hacker,Bcoz U Don't Know Wt Will Happn Tn,
-                                                    I am larning Python/PHP Language.
+        #Don't Break The Heart Of The Hacker,
+        Bcoz U Don't Know Wt Will Happn Tn,
+       I am larning Python/PHP Language.
 
           𝖑𝖊ɠêɳ̃d-𝖑x 𝙸𝚜 𝙾𝚗𝚕𝚒𝚗𝚎
 
