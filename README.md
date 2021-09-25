@@ -29,55 +29,54 @@ Here are some ideas to get you started:
         #Don't Break The Heart Of The Hacker,Bcoz U Don't Know Wt Will Happn Tn,
                                                     I am larning Python/PHP Language.
 
-                           𝖑𝖊ɠêɳ̃d-𝖑x 𝙸𝚜 𝙾𝚗𝚕𝚒𝚗𝚎
+          𝖑𝖊ɠêɳ̃d-𝖑x 𝙸𝚜 𝙾𝚗𝚕𝚒𝚗𝚎
 
-                          ┏━━♠️✞t͛ẞ̸ py✞honẞø✞♠️━━┓
+       ┏━━♠️✞t͛ẞ̸ py✞honẞø✞♠️━━┓
                                                               
-                          ┣🌷        Name    : "✞tß Prawash_Malviya 🇮🇳"
+       ┣🌷        Name    : "✞tß Prawash_Malviya 🇮🇳"
                                                               
-                          ┣🌷        Age      : "18"
+       ┣🌷        Age      : "18"
                                                               
-                          ┣🌷        Country✞ : "♥I N♥️"
+       ┣🌷        Country✞ : "♥I N♥️"
                                                               
-                          ┣🌷         PYTHON   : "4YEARS"
+       ┣🌷         PYTHON   : "4YEARS"
                                                               
-                          ┣🌷         Coding    : "PHP & JAVA"
+       ┣🌷         Coding    : "PHP & JAVA"
+                                                  
+       ┗━━━━━♠PRAWASH-malviya♠️ ━━━━━━━━┛
                                                               
-                          ┗━━━━━♠PRAWASH-malviya♠️ ━━━━━━━━┛
-                                                              
-                              ✨PY✞HON✨  🔹 📜PHP📜 
+           ✨PY✞HON✨  🔹 📜PHP📜 
                                                                                                                          
-                                                                                                                                                
-                                              ━━━━━━━━━━━━━━━━━━━━  
-                                       Python & java & php💖
-                                                  ━━━━━━━━━━━━━━━━━━━━
-                                         Coding is life 💝🖤
+                                                                                                                                              
+           ━━━━━━━━━━━━━━━━━━━━  
+           Python & java & php💖
+            ━━━━━━━━━━━━━━━━━━━━
+                Coding is life 💝🖤
 
 
                                                                        
  PRAWASH
-                         ━━━━━━━━━━━━━━━━━━━━
+  ━━━━━━━━━━━━━━━━━━━━
 
                                                                            
-                             『😈LEGEND-LX😈』
-
-          ┏━━━━━━━━━━━━━━━━━━━ ━━━━━━━━━━━━━━━━━━━━
+           『😈LEGEND-LX😈』
+┏━━━━━━━━━━━━━━━━━━━ ━━━━━━━━━━━━━━━━━━━━
                                                                        
-          ┣•➳➠ 🔭 I’m currently working on ...⚡PYTHON PHP JAVA Scripts⚡
+┣•➳➠ 🔭 I’m currently working on ...⚡PYTHON PHP JAVA Scripts⚡
+                                                                      
+┣•➳➠ 🌱 I’m currently learning ... ⚡Telegram and instagram bots⚡
+                                                                      
+┣•➳➠ 👯 I’m looking to collaborate on ...⚡Sof..project..scripts..⚡
                                                                        
-          ┣•➳➠ 🌱 I’m currently learning ... ⚡Telegram and instagram bots⚡
+┣•➳➠ 🤔 I’m looking for help with ...⚡repositories & projects⚡
                                                                        
-          ┣•➳➠ 👯 I’m looking to collaborate on ...⚡Sof..project..scripts..⚡
+┣•➳➠ 📫 How to reach me: ...&&&&&&&&
+                                                                      
+┣•➳➠ 😄 Pronouns: ...$$$$$$$$$$
                                                                        
-          ┣•➳➠ 🤔 I’m looking for help with ...⚡repositories & projects⚡
-                                                                       
-          ┣•➳➠ 📫 How to reach me: ...&&&&&&&&
-                                                                       
-          ┣•➳➠ 😄 Pronouns: ...$$$$$$$$$$
-                                                                       
-          ┣•➳➠ ⚡ Fun fact: ...##########
+┣•➳➠ ⚡ Fun fact: ...##########
                                                                      
-          ┗━━━━━━━━━━━━━━━━━━━ ━━━━━━━━━━━━━━━━━━━
+┗━━━━━━━━━━━━━━━━━━━ ━━━━━━━━━━━━━━━━━━━
  
  
  ![image](https://user-images.githubusercontent.com/87700009/133560780-0b124404-c06b-4588-8fd7-8a252b865338.png)
