@@ -79,10 +79,11 @@ Telegram ID =  ( https://t.me/Legendl_Mr_Hacker )
 ┣•➳➠ ⚡ Fun fact: ...##########
                                                                      
 ┗━━━━━━━━━━━━━━━━━━━ ━━━━━━━━━━━━━━━━━━━
- 
-LEGEND IS OPBOY 
 
- ![image](https://user-images.githubusercontent.com/87700009/133560780-0b124404-c06b-4588-8fd7-8a252b865338.png)
+
+========={LEGEND IS OPBOY]================
+
+
  ![23828996 - Copy](https://user-images.githubusercontent.com/87700009/132297993-586a4f2d-741c-4eff-8f43-9d5ce8978127.jpg)
  ![image](https://user-images.githubusercontent.com/87700009/133559934-d17c2c74-3507-43f7-8fa5-acf2a423993e.png)
  ![image](https://user-images.githubusercontent.com/87700009/133559990-894ac3fb-c7dd-4124-b9f5-8e8cb4ac936a.png)
