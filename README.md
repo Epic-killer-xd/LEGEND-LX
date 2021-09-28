@@ -81,7 +81,7 @@ Telegram ID =  ( https://t.me/Legendl_Mr_Hacker )
 ┗━━━━━━━━━━━━━━━━━━━ ━━━━━━━━━━━━━━━━━━━
 
 
-https://github-readme-stats.vercel.app/api/top-langs/?username=LEGEND-OS&layout=compact&theme=midnight-purple&hide=Css
+
 
 
 
