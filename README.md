@@ -54,7 +54,7 @@ OP
             ━━━━━━━━━━━━━━━━━━━━
                 Coding is life 💝🖤
 
-print("""prawash kumar malviya lohar""")
+print()"prawash malviya"
                                                                        
  PRAWASH
   ━━━━━━━━━━━━━━━━━━━━
