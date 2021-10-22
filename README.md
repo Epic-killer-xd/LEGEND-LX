@@ -58,7 +58,7 @@ OP
                                                                        
  PRAWASH
   ━━━━━━━━━━━━━━━━━━━━
-Telegram ID =  ( https://t.me/Legendl_Mr_Hacker )
+{Telegram ID} = [LEGEND-LX](http://t.me/Legendl_Mr_Hacker)
 
                                                                            
            『😈LEGEND-LX😈』
