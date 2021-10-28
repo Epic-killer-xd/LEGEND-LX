@@ -23,7 +23,7 @@ Here are some ideas to get you started:
 -                   ⚡ Fun fact: ...
   
 
-
+color=F77247&width=420&lines=A+Passionate+Developer+From+India%E2%9C%8C%EF%B8%8F;ργτнοи%2C+ρɦρ%2C+ℓιиυϰ%E2%9D%A4%EF%B8%8F">
          -->乛𖤍✞︎t§🔱𖤍𓆩ℓєgєи∂-ℓx™𓆪𖤍🔱⸙‌ٖٖٖ
 
         #Don't Break The Heart Of The Hacker,
