@@ -2,7 +2,7 @@
 ### Hi there 👋
 
 <!--
-**LEGEND-LX/LEGEND-lx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**prawash malviya/LEGEND-lx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
@@ -24,7 +24,6 @@ Here are some ideas to get you started:
   
 
 
-color=F77247&width=420&lines=A+Passionate+Developer+From+India%E2%9C%8C%EF%B8%8F;ργτнοи%2C+ρɦρ%2C+ℓιиυϰ%E2%9D%A4%EF%B8%8F">
 
 
          -->乛𖤍✞︎t§🔱𖤍𓆩ℓєgєи∂-ℓx™𓆪𖤍🔱⸙‌ٖٖٖ
@@ -57,7 +56,6 @@ OP
             ━━━━━━━━━━━━━━━━━━━━
                 Coding is life 💝🖤
 
-color=F77247&width=420&lines=A+Passionate+Developer+From+India%E2%9C%8C%EF%B8%8F;ργτнοи%2C+ρɦρ%2C+ℓιиυϰ%E2%9D%A4%EF%B8%8F">
                                                                        
  PRAWASH
   ━━━━━━━━━━━━━━━━━━━━
